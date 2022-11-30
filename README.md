@@ -1,3 +1,3 @@
 # HellYeah
 
-Not sure where I'm going yet
+Not sure where I'm going with this yet
